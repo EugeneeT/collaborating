@@ -17,4 +17,4 @@ is created when any combination of incompatible ingredients - such as food ingre
 3. The definition of a word.
 
 doubtful
-: unsettled in opinion : doubtful. I was dubious about the plan. : giving rise to uncertainty: such as. : of doubtful promise or outcome. a dubious plan.
+: unsettled in opinion : doubtful. I was dubious about the plan. : giving rise to uncertainty: such as. : of doubtful promise or outcome. a dubious plan....
